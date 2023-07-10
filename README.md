@@ -3,6 +3,7 @@
 - 🔭 I’m currently working on Andela as trainne
 - 💬 Ask me about my progress
 - 📫 How to reach me: mwanafunzifabrice@gmail.com
+- 📫 How to reach me: fabrice.mwanafunzi@karisimbitech.rw
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: 🎼
 
