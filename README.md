@@ -1,7 +1,6 @@
 ### Hi there 👋
 
 - 📫 How to reach me: mwanafunzifabrice@gmail.com
-- 📫 How to reach me: fabrice.mwanafunzi@karisimbitech.rw
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: 🎼
 
